@@ -15,11 +15,11 @@
 
 - 💬 Ask me about **android**
 
-- 📫 How to reach me **findjules2@gmail.com**
+- 📫 How to reach me **juliesellsnc@gmail.com**
 
 - 📄 Know about my experiences [Email for resume](Email for resume)
 
-- ⚡ Fun fact **I remodel house in my spare time.**
+- ⚡ Fun fact **I remodel houses in my spare time.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
